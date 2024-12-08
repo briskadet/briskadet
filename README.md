@@ -1,4 +1,7 @@
 ![](https://files.catbox.moe/lmo5ro.png)
 ![](https://files.catbox.moe/16zeqh.png)
 ![](https://files.catbox.moe/icotdn.png)
+![](https://files.catbox.moe/4zdc7g.png)
+![](https://files.catbox.moe/86iqjz.png)
+![](https://files.catbox.moe/uz671s.png)
 ![](https://komarev.com/ghpvc/?username=briskadet&style=flat-square)
