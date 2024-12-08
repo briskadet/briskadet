@@ -4,4 +4,6 @@
 ![](https://files.catbox.moe/4zdc7g.png)
 ![](https://files.catbox.moe/86iqjz.png)
 ![](https://files.catbox.moe/uz671s.png)
+![](https://files.catbox.moe/5yk4ox.png)
+![](https://files.catbox.moe/5mcrgl.png)
 ![](https://komarev.com/ghpvc/?username=briskadet&style=flat-square)
